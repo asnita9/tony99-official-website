@@ -10,7 +10,7 @@ This project was created to provide visitors with valuable information regarding
 Our goal is to build a centralized knowledge base that helps users stay informed about current developments in the rapidly evolving digital gaming industry.
 
 Official Website:
-https://saphir-design-ci.com/about/
+(https://top-hostels.com/)
 
 ---
 
@@ -163,16 +163,16 @@ Community members are encouraged to:
 ## Official Resources
 
 Website:
-https://saphir-design-ci.com/about/
+https://top-hostels.com/
 
 Latest Updates:
-https://saphir-design-ci.com/about/
+https://top-hostels.com/
 
 Promotions:
-https://saphir-design-ci.com/about/
+https://top-hostels.com/
 
 Community:
-https://saphir-design-ci.com/about/
+https://top-hostels.com/
 
 ---
 
