@@ -190,6 +190,6 @@ Visitors should always review applicable laws, regulations, and platform terms b
 
 For the latest updates, platform news, promotional campaigns, and industry insights, visit:
 
-https://saphir-design-ci.com/about/
+https://top-hostels.com/
 
 Thank you for visiting the TONY99 OFFICIAL Digital Gaming Resource Center.
